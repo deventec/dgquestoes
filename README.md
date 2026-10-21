@@ -331,4 +331,6 @@ Questões de concursos podem estar protegidas por direitos autorais. Utilize que
 <strong>🛡️ DG QUESTÕES</strong>
 <br>
 <em>Disciplina, constância e preparação para a aprovação.</em>
-</p>
+</p>#   d g q u e s t o e s 
+ 
+ 
